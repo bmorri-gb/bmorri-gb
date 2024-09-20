@@ -12,7 +12,7 @@
 - 📎 Projects
    * No upcoming projects 
 - 📞 Demos
-   * \#289-716-4859
+   * \#289-716-4***
    * ben.morrison@georgebrown.ca  
 - ⚡ What am I nerding out on right now? 
    * It was a lot of Baldur's Gate 3. Give me some recommendations! 
